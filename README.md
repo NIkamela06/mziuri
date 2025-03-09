@@ -1,3 +1,0 @@
-# mziuri
-# jk
-# mziuri
